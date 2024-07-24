@@ -4,7 +4,7 @@
 - 🤙 colaboração e ajuda.
 - 📫 se comunique comigo atráves do meu instagram @jorge.m175
 - 😄ele/dele
-- ⚡ jogos de ação
+- 🚚 jogos de caminhão
 
 <!---
 jorge-matheus-de-souza/jorge-matheus-de-souza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
